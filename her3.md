@@ -1,5 +1,5 @@
 
-### [Him](/)
+### [Him](index.md)
 
 ### Her
 
