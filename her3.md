@@ -1,3 +1,6 @@
+
+### [Him](/)
+
 ### Her
 
 Studying in a girls only convent school till 12th, she never really knew about the other side. It was in engineering college that she encountered the wild 'other' side. Even though boys mostly seemed stupid and thoughtless to her, there was one thing about which she felt that the grass was immensely green on the other side . Freedom! Boys did seem free and seemed to have more fun. When she look back at how easily she decided that she wanted to be with him for the rest of her life, she does remember that one thing she was sure of - life was going to be lots of fun!
