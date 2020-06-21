@@ -13,3 +13,5 @@ On the way back, they stopped at roadside shops in the villages and ate whatever
 By the time they rode back, it was nearing dusk. Because they were still on narrow country roads, it became dark and isolated very soon. The rest of the gang had picked up speed and they seemed to be all alone. He started feeling a little afraid. He was alone with her and suddenly realized that he was responsible for her safety. His imagination ran riot and he experienced strange fears - what if someone jumped from the shadows to attack them or what  if his antique bike choked on its own smoke and decided to stop. 
 
 The trip ended without incident but the fears would continue to exist. On their trip to Agra, he would pick out a cheap hotel, hoping to save money but spend the night terrified because it seemed to be a lodge for bachelors, not a hotel for families. They would try to get lost on long treks in remote English villages and when they did get lost, he would lose his calm imagining the worst of outcomes.  He would feel like a child vested with a great treasure - proud, jubilant and terrified, all at the same time. 
+
+ ### [Her](https://github.com/shenuja/himandher/her3.md
