@@ -14,4 +14,4 @@ By the time they rode back, it was nearing dusk. Because they were still on narr
 
 The trip ended without incident but the fears would continue to exist. On their trip to Agra, he would pick out a cheap hotel, hoping to save money but spend the night terrified because it seemed to be a lodge for bachelors, not a hotel for families. They would try to get lost on long treks in remote English villages and when they did get lost, he would lose his calm imagining the worst of outcomes.  He would feel like a child vested with a great treasure - proud, jubilant and terrified, all at the same time. 
 
- ### Her [Her](her3.md)
+ ### [Her](her3.md)
