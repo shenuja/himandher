@@ -1,5 +1,4 @@
 
 
-### Episode 3
-#### By him - [Him](him3.md)
-#### By her - [Her](her3.md)
+### Episode 3 [Him & Her](him3.md)
+### [Moonlight Anniversary] (moonlight.md)
