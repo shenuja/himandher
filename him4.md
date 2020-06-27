@@ -1,3 +1,9 @@
+## Him and her - Episode 4
+
+### Him
+
+
+
 They had decided to move on a whim. Or so it seemed to all their friends. His brother-in-law simply deemed it a crazy plan. The plan, if it was indeed one, lacked straightforward reasoning and was so convoluted that it seemed inside out. They knew they would want to have a baby soon, and somehow they assumed she would need to be with her mother during pregnancy. Because he would want to be with her, they decided they would need a house of their own in Kochi. That dovetailed with her desire for an independent house, which was an impossible dream in Bangalore. When they finally bought this house intended for a temporary sojourn, they then decided that it didn't make sense to live in a rented house in Bangalore when they could be living in their own house in Kochi. Therefore, they decided to move.
 
 They didn't realize it at the time, but there were little more than kids. They had a car, but hadn't driven it further than a few kilometres, so they hired a driver to drive them to Kochi. They had paid movers and packers to bring their stuff home but because he was afraid of union workers in Kerala, they asked the moving trucks to come in at midnight. They slept in one corner of the huge house and he woke up to every real and imagined noise at night. For the first time, they had real neighbours who wanted to socialize with them and they didn't know how. For the sake of politeness, they had to sit through gender-separated parties where the women sang songs and the men drank to oblivion. 
