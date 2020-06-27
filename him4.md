@@ -7,4 +7,6 @@ They didn't know how to get their plumbing problems fixed or where to find an el
 For the first time in their lives, they were with each other 24 hours in a day - combining work and life in one fuzzy blur. That led to many silly tiffs and quarrels. They would fight over who should bathe first just when it was lunchtime. They would work late into the night and then start arguing about dinner. The last resort was a lone restaurant on the highway for whom the process of home delivery was still a novelty. Still, the green and wet town held its charm. He relished the mornings when they sat with their respective newspapers over a cup of tea. She enjoyed taking him to the library she visited as a child, the stores she bought clothes as a teenager - and other quaint places she had grown up with. They explored the new facets of the city together - a library had come up in the suburbs, a new waterfront was being built near her house. They agreed that this was a place that was just like the two of them - fun and understated, but bound to be frustrating at times. If they had been more mature, they would have understood that they were taking the decision of their lifetime, which was to make the place their home.
 
 
-_Subhash Gopalakrishnan_
+
+
+_Subhash_
