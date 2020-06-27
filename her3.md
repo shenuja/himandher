@@ -12,3 +12,6 @@ He and his friends were going for a small trek to a nearby place. She was invite
 She was confused. Why didn't anyone enjoy this place. She tried walking backward to extrapolate how it will be at the top - she could imagine it.. Already it was windy and the town was starting to fade into oblivion. She was sure that at the top, they would feel detached from the world and that there would be a wonderful view. She tried asking someone - won't there be a view at the top? There will be, he tried to convince his girl friend who didn't seem too keen to go all the way up.
 
 It was tiring, but totally worth it... At the top, it was her own small world of people and the view. She was sitting with him quietly at the top, with the wind and the quiet and the rest of the world not able to affect them..Life should be like this, she thought. On the way back, it got dark and late sooner than they expected. His friend and his girl friend were taking turns on their bike, but he seemed really tired and moody. She wished she could drive the bike to alleviate his trouble a bit. But once they reached the lighted city back he seemed to be back in his spirits and they called it off as a wonderful day. They would go on many more trips like this, which would be teasers into the bigger adventures they would have, in life.
+
+
+_Shenu_
