@@ -12,4 +12,4 @@ He secretly wished to sit next to her but was afraid of her friend's taunts. He 
 Later that night, they ran into each other when they were with their separate group of friends. He did not venture into her company mainly because he was embarassed of elaborate introductions. But it also made it obvious to him how different their cirumstances were. She had grown up in a different community, spoke a different language and probably held values vastly different from his own. Though he told himself that they seemed to coincide on the values he held most sacred, how was he to be sure that these reassurances will hold for life. He told himself that none of this mattered because his was a lone pursuit - she was not interested. Even if she was, she would not be able to give in to the passion and summon courage as he had managed to. After all, not everyone is a romantic in search of romance.  
 
 
-_~ Him_
+_~Him_
