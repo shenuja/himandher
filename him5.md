@@ -17,3 +17,6 @@ She was in a quandary. She wanted the doll but would have to break her vow of no
 She kept lamenting the fact that she had gotten over her inhibitions about riding on his bike for nothing. He smiled and promised her that he would get her the original Chimbi paava at a bargain. On their next trip to Brigade road, he bought her the much sought-after artifact at a minor discount and made her happy. Though he couldn't understand why she liked the doll so much, it reminded him of her. Later, when their son was born, he eagerly brought the doll to him. But the baby was terrified of the oversized doll and rejected her immediately. And yet, the leggy doll lives with them to this day - she might be a little disheveled and dirty, but she has her wide smile, intact. 
 
 _~Him_
+
+
+### Episode 3 [By her](her5.md)
