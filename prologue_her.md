@@ -3,7 +3,7 @@
 
 ### Prologue - The proposal..(or the lack of it) :-)
 
-#### Notes to Each Other - Hugh and Gaule Prather
+#### _Notes to Each Other - Hugh and Gaule Prather_
 
 _"Did I pick the right person? This question inverts the starting and ending points. We do not pick our perfect match, because we ourselves are not perfect. The universe hands us a flawless diamond - in the rough. Only if we are willing to polish off every part of ourselves that cannot join do we end up with a soulmate"_
 
