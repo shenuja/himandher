@@ -8,7 +8,7 @@
 6. ### [Him & Her Episode 6](hug_him.md)
 
 
-7. ### [Moving] (moving_him.md)
+7. ### [Moving](moving_him.md)
 8. ### [Episode 10 - Him and her (and another him :-)](another_him.md)
 
 9. ### [Moonlight Anniversary](moonlight.md)

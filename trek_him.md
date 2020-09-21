@@ -1,4 +1,4 @@
-## Him and her - Episode 3
+## Him and her - Episode 5
 
 ### Him
 
@@ -17,4 +17,4 @@ The trip ended without incident but the fears would continue to exist. On their 
 
 _~Him_
 
-### Episode 3 [By her](trek_her.md)
+### Episode 5 [By her](trek_her.md)
