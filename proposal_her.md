@@ -3,7 +3,7 @@
 
 ### Prologue - The proposal..(or the lack of it) :-)
 
-#### Notes to Each Other - Hugh and Gaule Prather
+#### _Notes to Each Other - Hugh and Gaule Prather_
 
 _"Did I pick the right person? This question inverts the starting and ending points. We do not pick our perfect match, because we ourselves are not perfect. The universe hands us a flawless diamond - in the rough. Only if we are willing to polish off every part of ourselves that cannot join do we end up with a soulmate"_
 
@@ -47,7 +47,7 @@ He: Good then, forget it. No questions, no answers.
 
 He went back to his old self with a vengeance. She noticed that he again started sneaking out of the office to smoke. She was afraid to ask or reprimand. He lost interest in his work and started looking like a mess. She was angry, and frustrated. But she could not let someone bully her or blackmail her into falling in love. She missed her friend miserably. She desperately wanted things to be back to where it was and tried convincing him that they should be just friends. He was adamant that she is not a friend.  He said he was not one of those kinds who pretended to be friends with the girl he was in love with. He gave her the bracelet back and said that for his self-preservation it was better that they did not interact with each other.
 
-~ Her
+_~ Her_
 
 
 
