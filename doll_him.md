@@ -1,7 +1,7 @@
 
    [<<  Back to Index](index.md)
 
-## Him and her - Episode 5
+## Him and her - Episode 2
 
 ### Him
 
@@ -19,4 +19,4 @@ She kept lamenting the fact that she had gotten over her inhibitions about ridin
 _~Him_
 
 
-### Episode 5 [By her](her5.md)
+### Episode 5 [By her](doll_her.md)

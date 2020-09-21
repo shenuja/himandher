@@ -1,9 +1,9 @@
 [<<  Back to Index](index.md)
 
 
-### Episode 5 [By him](him5.md)
+### Episode 2 [By him](doll_him.md)
 
-### Episode 5 By her
+### Episode 2 By her
 
 The moment she had her first job, there were two things she wanted to spend money on, for herself. Chocolates and dolls! It sounds silly, but she was still a little girl at heart and she had this fancy that she didn't have enough 'mushy' while growing up. She started getting chocolates from all fronts, from her classmates, especially boys who had jobs by then! Since he was her friend, she'd happily share them with him too. Once, when he was buying flowers and chocolates for his sister for her anniversary (or birthday?) he bought for her too, saying he felt guilty always finishing up her chocolates. She found it sweet that he'd buy flowers and chocolates for his sister, but did not feel comfortable when he bought her those. Was it crossing a line? 
 

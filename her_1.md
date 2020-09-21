@@ -1,7 +1,7 @@
 [<<  Back to Index](index.md)
 
 
-### Him and Her - Episode 6
+### Him and Her - Episode 1
 
 
 She didn't have an elder brother. Ever since she read Little Women, she had wanted to have a friend like what Laurie was to Jo. Then she met him, after her college, at her first job.They were in the same team, but she was the only girl in the team. When she arrived she had to quickly make friends with someone to have coffee and lunch with. (Not sure if this was her own specific need or the general need of the female species). She chose him, since he seemed like one of those who were comfortable with his masculinity without having to flash it out. He did not intimidate her by paying her too much attention. Also, that he was not very handsome was an added comfort.

@@ -17,4 +17,4 @@ The trip ended without incident but the fears would continue to exist. On their 
 
 _~Him_
 
-### Episode 3 [By her](her3.md)
+### Episode 3 [By her](trek_her.md)

@@ -1,7 +1,7 @@
    [<<  Back to Index](index.md)
 
 
-## Him and her - Episode 1
+## Him and her - Episode 4
 
 ### Her
 
@@ -23,4 +23,4 @@ The movie was "Kannathil Muthamittal" by Mani Ratnam. When she was watching the 
 
 _~Her_
 
-### [Episode 1 - Him](him1.md)
+### [Episode 4 - Him](him_4.md)
