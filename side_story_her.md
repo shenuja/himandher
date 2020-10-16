@@ -39,6 +39,8 @@ There was a long silence after that.. Especially, in her mind.
 
 Later, Deepa would have known about her since she immediately received a friend request from her. She found her an honest, friendly girl. Surabhi would tell her how Deepa would try to find out if she was very beautiful. Later, when Deepa came down to meet all of them, she remember feeling very nervous since she was afraid that she was being evaluated for whether she was beautiful or not.
 
-She found it ironical even at that time. Women say indignantly that they should not be judged by their external appearance, but in her experience women were the first to always judge each other that way. For many of her friends, it was usually the would be mother-in-law who'd ask her son - "She's not even beautiful. Why do you want to marry her?"..
+She found it ironical even at that time. Women say indignantly that they should not be judged by their external appearance, but in her experience women were the first to always judge each other that way. For many of her friends, it was usually the would be mother-in-law who would ask her son - "She's not even beautiful. Why do you want to marry her?"..
 
-I hope their sons had the same answer - "Oh, you haven't loved at all! (lol) In love, you do not 'choose', you just love!!"
+She hoped that their sons had the same answer - "Oh, you haven't loved at all! In love, you do not 'choose', you just love!!"
+
+~ Her
