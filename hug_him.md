@@ -1,7 +1,7 @@
 [<<  Back to Index](index.md)
 
 
-### Episode 7 - Him
+### Episode 6 - Him
 
 One morning, he was waiting for her in the office but she seemed unusually late. He tried calling on her phone and she answered in a weak voice. She was unwell and wanted him to tell their manager. He was disappointed that he couldn't see her that day. He decided to sneak away from work and give her a surprise. He stopped by the sagar near her house to get a parcel of curd rice.
 
@@ -13,4 +13,4 @@ One day, while dropping her home from the airport, he lingered on and got into a
 
 ~ Him
 
-#### [Episode 7 - Her](hug_her.md)
+#### [Episode 6 - Her](hug_her.md)

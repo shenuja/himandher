@@ -1,10 +1,10 @@
 [<<  Back to Index](index.md)
 
 
-#### [Episode 7 - Him](hug_him.md)
+#### [Episode 6 - Him](hug_him.md)
 
 
-### Episode 7 - Her
+### Episode 6 - Her
 
 There was a way in which she found it very easy to be in his company. With him, life for her was like being in a carnival. Even if she didn't take all the rides, he would still have something to say about each of them that in the end, she wouldn't feel that she missed any. None of the differences or fights would last, because both of them were eager to enjoy the rest of the rides before time gets over. But she did remember feeling that this fight seemed nastier than the rest. It was probably more than 2 years since she had been spending most of her waking hours with him. They work in the same team in the same office. They have coffee, lunch and dinner together and after returning to their individual homes, they spent a lot of time talking about everything under the sun, over the phone. This fight was over the phone, in the night and that was the first time when she felt that it was possible for them to be on two sides and stay in their respective sides without each of budging or bothering to cross over. It did not feel good.
 
