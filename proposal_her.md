@@ -7,6 +7,7 @@
 
 _"Did I pick the right person? This question inverts the starting and ending points. We do not pick our perfect match, because we ourselves are not perfect. The universe hands us a flawless diamond - in the rough. Only if we are willing to polish off every part of ourselves that cannot join do we end up with a soulmate"_
 
+##### 20 - Feb - 2002
 
 She does not remember when it all started.. They had a lot of time to talk and they had a lot to talk about. She was the only girl in her team of programmers and she was keen to be friends with someone who would not bore her to death. They were hardly 21, but it was the early 2k, and in India they all grew up a little later than the rest of the world. They were more like a boy and a girl of 17. Free, innocent, gullible and untouched by worldly wisdom.
 
