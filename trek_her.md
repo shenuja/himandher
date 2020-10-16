@@ -1,7 +1,7 @@
 [<<  Back to Index](index.md)
 
 
-### Episode 5 [By him](trek_him.md)
+### Episode 6 [By him](trek_him.md)
 
 ### By her
 
