@@ -5,47 +5,47 @@
 ### Magic Carpet Ride
 
 "..
-I can show you the world
-Shining, shimmering, splendid
-Tell me, princess, now when did
-You last let your heart decide?
+I can show you the world <br/>
+Shining, shimmering, splendid<br/>
+Tell me, princess, now when did<br/>
+You last let your heart decide?<br/>
 
-I can open your eyes
-Take you wonder by wonder
-Over, sideways and under
-On a magic carpet ride
+I can open your eyes<br/>
+Take you wonder by wonder<br/>
+Over, sideways and under<br/>
+On a magic carpet ride<br/>
 
-A whole new world
-A new fantastic point of view
-No one to tell us, "No"
-Or where to go
-Or say we're only dreaming
+A whole new world<br/>
+A new fantastic point of view<br/>
+No one to tell us, "No"<br/>
+Or where to go<br/>
+Or say we're only dreaming<br/>
 
-A whole new world
-A dazzling place I never knew
-But when I'm way up here
-It's crystal clear
-That now I'm in a whole new world with you
+A whole new world<br/>
+A dazzling place I never knew<br/>
+But when I'm way up here<br/>
+It's crystal clear<br/>
+That now I'm in a whole new world with you<br/>
 
-Unbelievable sights
-Indescribable feeling
-Soaring, tumbling, freewheeling
-Through an endless diamond sky
-A whole new world (don't you dare close your eyes)
-A hundred thousand things to see (hold your breath, it gets better)
-_I'm like a shooting star, I've come so far
-I can't go back to where I used to be_
+Unbelievable sights<br/>
+Indescribable feeling<br/>
+Soaring, tumbling, freewheeling<br/>
+Through an endless diamond sky<br/>
+A whole new world (don't you dare close your eyes)<br/>
+A hundred thousand things to see (hold your breath, it gets better)<br/>
+_I'm like a shooting star, I've come so far<br/>
+I can't go back to where I used to be_<br/>
 
-A whole new world (every turn, a surprise)
-With new horizons to pursue (every moment, red-letter)
-I'll chase them anywhere, there's time to spare
-And then we're home (there's time to spare)
-Let me share this whole new world with you
+A whole new world (every turn, a surprise)<br/>
+With new horizons to pursue (every moment, red-letter)<br/>
+I'll chase them anywhere, there's time to spare<br/>
+And then we're home (there's time to spare)<br/>
+Let me share this whole new world with you<br/>
 
-A whole new world 
-That's where we'll be 
-A thrilling chase (a wondrous place)
-For you and me
+A whole new world <br/>
+That's where we'll be <br/>
+A thrilling chase (a wondrous place)<br/>
+For you and me<br/>
 
 .."
 
