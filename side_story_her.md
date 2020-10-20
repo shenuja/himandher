@@ -20,7 +20,7 @@ Was he available? Technically he was, right? Did one sided commitment count as '
 "Oh not that, but he did tell me about someone he was interested in. Apparently she was not. Since this was a personal matter, I was not sure how to keep people's heart in tact without broadcasting other people's personal stories.I am sure he is not in a committed relationship. Rest is up to your friend. Not sure if you should 'warn' her or not".
 
 They reached the office and the day went by, she having forgotten the incident. By evening, around tea time he came to her cubicle and told her 
-"You know, I think Surabhi knows about us!.. I mean, my feelings for you." 
+"You know, I think Surabhi knows about us!.. I mean, my feelings for you." <br/>
 She panicked - 
 "Why do you say that?"<br/>
 "Well, Deepa was pressing me about the issue."<br/>
