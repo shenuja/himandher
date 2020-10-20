@@ -19,17 +19,17 @@ Was he available? Technically he was, right? Did one sided commitment count as '
 "Why are you so quiet? Is there something between you two? " Surabhi was adamant. 
 "Oh not that, but he did tell me about someone he was interested in. Apparently she was not. Since this was a personal matter, I was not sure how to keep people's heart in tact without broadcasting other people's personal stories.I am sure he is not in a committed relationship. Rest is up to your friend. Not sure if you should 'warn' her or not".
 
-They reached the office and the day went by, she having forgotten about the incident. By evening, around tea time he came to her cubicle and told her 
+They reached the office and the day went by, she having forgotten the incident. By evening, around tea time he came to her cubicle and told her 
 "You know, I think Surabhi knows about us!.. I mean, my feelings for you." 
 She panicked - 
-"Why do you say that?" 
-"Well, Deepa was pressing me about the issue." 
-"What did Deepa say?"
-"It's embarassing and boring to talk about all that. I will send you the chat records"
-"Wait, isn't it personal between you two?"
+"Why do you say that?" <br />
+"Well, Deepa was pressing me about the issue."  <br />
+"What did Deepa say?" <br />
+"It's embarassing and boring to talk about all that. I will send you the chat records" <br />
+"Wait, isn't it personal between you two?" <br />
 "What??" He rolled his eyes, went to his cubicle and sent her the chat records.
 
-When she saw the conversation, she felt a little irritated with Deepa. She had clearly asked Surabhi to be discrete and not hurt his feelings. Deepa was definitely not beating around the bush! She was hinting this and that and trying to ask him if he had a girl friend. He was evading the question. Finally Deepa got fed up and told him that Surabhi had told her that he was considering a girl. Maybe that was the part that surprised him as to how Surabhi knew. Anyway, he suddenly got very conversational and started talking about how much he loved her, but how she was so heartless and would not even consider him. 
+When she saw the conversation, she felt a little irritated with Deepa. She had clearly asked Surabhi to be discrete and not hurt his feelings. Deepa was definitely not beating around the bush! She was hinting this and that and trying to ask him if he had a girl friend. He was evading the question. Finally Deepa got fed up and told him that Surabhi had told her that he was considering a girl. Maybe that was the part that surprised him as to how Surabhi knew. Anyway, he suddenly got very conversational and started talking about how much he loved a girl, but how she was so heartless and would not even consider him. 
 
 That was when Deepa asked the question that was pertinent to her. "If someone really likes you, would you choose the girl who does not care about you or the one who cares about you?"
 
