@@ -9,3 +9,6 @@ Here I was, speaking Malayalam now, waiting to pick up my son, someone who's jus
 I spot the moon above the house. It is unshapely, an irregular blotch in a grey sky. I have seen this sight before. When I walked from my hostel, alone, to have a cup of tea at midnight, I would walk looking up all the way. The moon is permanent. It's always there, across space and time. Regardless of whether I was happy or sad, the moon was a constant reference. Did I know then, that I would be happy? 
 
 The piano is still playing. It's a peppy song. The moon shines on. I feel happy, for no reason. I know that's the best kind. I am happy to wait, happy in this slot where space and time have no meaning. Where life pauses, so that you can look at you. 
+
+
+~ Him
