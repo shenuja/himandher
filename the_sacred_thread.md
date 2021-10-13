@@ -1,7 +1,7 @@
   [<<  Back to Index](index.md)
 
 
-### The Sacred Thread! (That divide between pure bloods and mudbloods)
+### The Sacred Thread! 
 
 She had been worried about him ever since he confided to her about his mother's death when he was a child. He was reluctant to discuss it but she believed that the childhood trauma was still within him and desperately wanted release for him. He was not yet seeing things clearly and would get annoyed at her insistence, claiming that it was strictly in the past and that he had forgotten all about it. He did have a vague intention of starting an annual ritual on his mother's death anniversary but wasn't sure how to go about it. Brahmin rituals were esoteric and required guidance from a qualified priest of sorts. She insisted that he set about finding one.
 
