@@ -1,7 +1,7 @@
 [<<  Back to Index](index.md)
 
 
-## Him and her - Episode 7
+## Him and her - Episode 8
 
 
 They were on a mission. They set off from the Glasgow railway station, on the first leg of the journey to Oban, a small port-town on the western coast of Scotland. It was evening by the time they reached. On the way to their B&B, they noticed the stately ferry that would take them to the Isle of Mull the next day. The next day's breakfast was uneventful but she was so excited about fulfilling the dream that had haunted her ever since she saw those hexagonal rocks stacked up at Giant's causeway in Northern Ireland. 

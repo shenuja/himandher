@@ -7,7 +7,7 @@
 5. ### [Him & Her Episode 4](her_4.md)
 6. ### [Him & Her Episode 5](trek_him.md)
 7. ### [Magic Carpet Ride](magic_carpet.md)
-8. ### [Him & Her Episode 6](her_yes.md)
+8. ### [Him & Her Episode 6](her_6.md)
 9. ### [Him & Her Episode 7](hug_him.md)
 10. ### [Him & Her Tiffs](tiffs_him.md)
 11. ### [Him & Her Episode 8](him_8.md)
