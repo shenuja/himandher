@@ -10,7 +10,7 @@ She got up with all the excitement of a child on her birthday. She was going to 
 
 The telephone kept ringing with birthday wishes from her family and her friends who were no longer in Bangalore. She had a letter from her father and her sister. When she got a gap, she quickly took a shower and had to rush out in house clothes to attend to the telephone that was ringing again. Her housemates were almost ready, walking in and out of rooms in the last minute rush. Two of them had already left for the office, keeping the front door open.
 
-She was settling down on the mattress sprawled on the floor to attend to the telephone. She does not remember who it was on the phone, but her eyes were in the direction of the open front door, and she froze. He was standing there, outside her house, looking embarrassed and totally out of place. 
+She was settling down on the mattress sprawled on the floor to attend to the telephone. She does not remember who it was on the phone, but her eyes were in the direction of the open front door, and she froze. He was standing there, in front of her house, looking embarrassed and totally out of place. 
 Her first thought was, what would the girls in the house think? Did they see him? 
 
 She said something into the phone and  quickly came out and tried to pull him out of the gate. He whispered "Happy Birthday, I wanted to give this to you". Then she saw it - A huge box which could easily fit a person inside. She was in shock as she asked "How did you bring this here". He sheepishly answered "I walked with it".  Her eyes became wider and wider - "All this way? On the roads? Didn't people see you?". He laughed nervously -  "It didn't seem so stupid before, but now I am not sure". 
@@ -31,8 +31,8 @@ She carefully dressed up, packed her bags for the evening trip home, and left fo
 
 "Scarlett O Hara", he would tease. That was whom she reminded him of , he had said, the very first week after they met. She didn't know who she was - the heroine of "Gone with the wind", she hadn't read the book or seen the movie. She asked Surabhi and she seemed to think that it was an insult because Scarlett O Hara was not an ideal woman according to her. She ignored that too, until she came across Linda Goodman's description of Aries women. 
 
-_"Scariett O’Hara is the very epitome of the Mars-ruled
-Aries female. Like Scariett, the Aries girl will gather every available male for a hundred miles around to her feet, while her willful heart yearns for the one man she can’t have for one reason or another."_
+_"Scarlett O’Hara is the very epitome of the Mars-ruled
+Aries female. Like Scarlett, the Aries girl will gather every available male for a hundred miles around to her feet, while her willful heart yearns for the one man she can’t have for one reason or another."_
 
 She was impressed then - for he had absolutely no clue about sun signs or Linda Goodman .. and she was Aries! But right now, he was clearly mocking at the huge red cards on her desk.
 
