@@ -34,7 +34,7 @@ She carefully dressed up, packed her bags for the evening trip home, and left fo
 _"Scarlett O’Hara is the very epitome of the Mars-ruled
 Aries female. Like Scarlett, the Aries girl will gather every available male for a hundred miles around to her feet, while her willful heart yearns for the one man she can’t have for one reason or another."_
 
-She was impressed then - for he had absolutely no clue about sun signs or Linda Goodman .. and she was Aries! But right now, he was clearly mocking at the huge red cards on her desk.
+She was impressed then - for he had absolutely no clue about sun signs or Linda Goodman .. and she was Aries! But right now, he was clearly mocking at the huge red cards at her desk.
 
 
 During coffee, they discussed the aftermath of his visit and she said that the girls were already emailing her names for the gorilla. He asked "so what have you decided to name it?'' The Scarlett O Hara remark was still in her mind so she said  "I am going to name him "Rhett", and I am going to ignore all other boys and love ONLY him for the rest of my life." He seemed amused. 
