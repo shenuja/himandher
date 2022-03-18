@@ -18,4 +18,10 @@ They managed to try out the gelatos and canollis that Venice was popular for and
 
 The next morning, he decided to play it safe and called for a water-taxi. She had been consoled now with the promise that Venice was going to be here with all the Gondolas until they could visit her again in the near future. The train took them on for the next adventure awaiting them. 
 
-~ Him
+_~ Him_
+
+
+
+
+
+_© 2019 Subhash G_

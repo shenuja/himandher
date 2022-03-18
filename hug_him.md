@@ -11,6 +11,12 @@ He served the curd rice on a plate and fed her with a spoon. Sometimes, he would
 
 One day, while dropping her home from the airport, he lingered on and got into a minor tiff with her. As if to make up for it, she hugged him and he loved it. He wouldn't have dared take the first step, but now that it was in the open, he could use the opportunity whenever he wanted to. He would hold her lightly and feel her breath on him. He would breathe into her curls and go into a trance. When it was time to let go, he would start all over again. Life in an embrace! 
 
-~ Him
+_~ Him_
 
 #### [Episode 7 - Her](hug_her.md)
+
+
+
+
+
+_© 2019 Subhash G_

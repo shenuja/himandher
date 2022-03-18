@@ -18,3 +18,7 @@ The trip ended without incident but the fears would continue to exist. On their 
 _~Him_
 
 ### Episode 6 [By her](trek_her.md)
+
+
+
+_© 2019 Subhash G_

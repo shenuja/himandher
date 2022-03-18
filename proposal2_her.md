@@ -1,6 +1,7 @@
 
 [<<  Back to Index](index.md)
 
+#### [The Proposal - 1](proposal_her.md)
 
 ### The Proposal - 2 
 
@@ -21,3 +22,7 @@ He apologized to her as soon as he saw her in the office, but she was so angry w
 After 20 years her main complaint is that she never received a proper proposal! ( at least not a traditional one, nothing after she was ready). Now when their son says " I am going to play some more video game, Appa is anyway angry with me", she feels a sense of triumph. That was her sweet revenge. She has succeeded in pitting him against himself.
 
 _~ Her_
+
+
+
+_© 2019 Shenuja Subhash_

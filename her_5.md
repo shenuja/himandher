@@ -13,3 +13,9 @@ Next day she went and told him YES, but added that she reserved the right to cha
 "No, let this comfort of friendship continue..Let us be very gentle with this newfound gift that we have. Let us treat it like the delicate flame of a lamp and not risk disturbing it by sudden movements. Let it grow strong enough that nothing can blow it out.." Her answers were many and unspoken, but he read it in her eyes and said "No, let us take our time.." with a wide, happy grin on his face.
 
 _~Her_
+
+
+
+
+
+_© 2019 Shenuja Subhash_

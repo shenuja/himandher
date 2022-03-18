@@ -18,3 +18,10 @@ One session didn't seem to be enough and soon enough, they were alternating betw
 He asked the nurse if he could take a quick peek at his child. She reluctantly agreed. He stepped into the room where two or three babies were sleeping, only his under a string white lamp. His baby was lying face down with both legs tucked in. He seemed so diminutive and helpless. The baby's anus was clearly visible and looked like a puckered flower to him. That made him sad and he somehow felt like he had failed in his duty to protect something so delicate and pristine. Until then, he had wanted many children but the one week they spent nursing their only child for a simple illness made him decide that he would be the only one.
 
 ~ Him
+
+
+
+
+
+
+_© 2019 Subhash G_

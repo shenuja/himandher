@@ -18,4 +18,12 @@ The Abbey was a lovely place but they couldn't enjoy it. It had been built in th
 
 To cheer her up, he got her an apple cider, the only thing available in the outpost. Because they had nothing to do till the evening, when the bus would go down the reverse route, they climbed up the small hill, braving the cold winds. The light was funny up there, grey and dirty blue. The wind was piercing cold and tried its best to push them off the hill. The sea looked like a gray mystery shrouded in cottons of mist. They stood together in the biting cold, ruing their fate and wondering why Fingal was so hard to visit. 
 
-~ Him
+_~ Him_
+
+
+
+
+
+
+
+_© 2019 Subhash G_

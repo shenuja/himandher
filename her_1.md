@@ -20,3 +20,8 @@ She was amazed. She had grown up as a girl in a small town and there were many o
 After that day she tried to look at him more closely. That is when she slowly started observing that maybe he is not someone whom you would look twice at, in a crowd - but he did have a personality that stood out a mile..
 
 ~ Her
+
+
+
+
+_© 2019 Shenuja Subhash_

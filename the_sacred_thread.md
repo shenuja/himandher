@@ -11,4 +11,11 @@ The vadhyar turned out to be an old man. Just from his voice over the phone, he 
 
 He was left all alone with his rage which refused to burn down within him. He felt helpless because he had put himself at their mercy. He even felt unreasonably angry at her for insisting that he take this path. There seemed to be nobody at whom he could actively direct his anger and disgust. He had never been a supporter of the caste system or it's inhuman beliefs. He had merely wanted to uphold a vague sense of heritage and now he was sure he wanted no part of it. Then, what remained was only the sign of centuries of entitlement and oppression against fellow-beings - his poonool. He had obviously decided to give it up, but not just in a quiet act of relinquishing it. He wanted to make it an expression of his personal angst and protest against the vile system and its propagators. He went to the toilet, dropped the holy thread and flushed it. The irony of the holy symbol of caste meeting its very notion of impurity was not lost on him. 
 
-~ Him
+_~ Him_
+
+
+
+
+
+
+_© 2019 Subhash G_

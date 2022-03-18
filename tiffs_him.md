@@ -33,3 +33,8 @@ When they were mindful, they revelled in her generosity<br/>
 And when they weren't, lost sight of the beauty in their rifts<br/>
 
 ~ Him
+
+
+
+
+_© 2019 Subhash G_

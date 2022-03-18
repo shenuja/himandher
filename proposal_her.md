@@ -51,3 +51,9 @@ She resolved that she was never going to tell him about the conversation she had
 She thought that she'd forget about all this, and take life one day at a time. But ever since Rhett came into her life, she was finding it difficult to ignore him. He was standing out there, like Rhett in the Archies shop, bigger than the place that would contain him.  If someone asked her if she found him cute, she was not even sure. But she was sure of one thing - it was impossible to see anyone or anything else as long as he was there! 
 
 _~Her_
+
+
+
+
+
+_© 2019 Shenuja Subhash_

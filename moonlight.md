@@ -11,4 +11,11 @@ I spot the moon above the house. It is unshapely, an irregular blotch in a grey 
 The piano is still playing. It's a peppy song. The moon shines on. I feel happy, for no reason. I know that's the best kind. I am happy to wait, happy in this slot where space and time have no meaning. Where life pauses, so that you can look at you. 
 
 
-~ Him
+_~ Him_
+
+
+
+
+
+
+_© 2019 Subhash G_
