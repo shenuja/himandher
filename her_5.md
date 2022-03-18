@@ -1,7 +1,7 @@
 [<<  Back to Index](index.md)
 
 
-### Episode 6 By her
+### Episode 5 By her
 
 She had said "NO" to him, and to herself so many times that when the "YES" came, it was loud and clear and out of the blue! She did not remember how many times he had tried to communicate to her, his love for her, over the past 8 months. Every time, even before he started, her answer was the same..
 

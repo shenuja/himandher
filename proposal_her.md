@@ -1,55 +1,53 @@
-  [<<  Back to Index](index.md)
+
+[<<  Back to Index](index.md)
 
 
-### The proposal..(or the lack of it) :-)
-
-#### _Notes to Each Other - Hugh and Gaule Prather_
-
-_"Did I pick the right person? This question inverts the starting and ending points. We do not pick our perfect match, because we ourselves are not perfect. The universe hands us a flawless diamond - in the rough. Only if we are willing to polish off every part of ourselves that cannot join do we end up with a soulmate"_
-
-##### 20 - Feb - 2002
-
-She does not remember when it all started.. They had a lot of time to talk and they had a lot to talk about. She was the only girl in her team of programmers and she was keen to be friends with someone who would not bore her to death. They were hardly 21, but it was the early 2k, and in India they all grew up a little later than the rest of the world. They were more like a boy and a girl of 17. Free, innocent, gullible and untouched by worldly wisdom.
-
-There were talks of marriage at her home. In their community, once the girl has completed her education and has a job, there is nothing more to do than to get married. (Sometimes completing the education or having a job was also optional) She had a lot of prospective suitors, some who liked her from her college, some from her own extended family circles and some prospective grooms in the arranged marriage market. She could not understand why anyone should marry unless they fell in love. As she was growing up, her favorite book was Jane Austen's Pride and Prejudice. She thought life would give her a chance to meet her Darcy who would fall in love with her mainly for her wit and intelligence, and whom she would eventually fall in love with.. She still didn't have a backup plan for what if that did not happen.
-
-She had a lot of time to think about love while in college. There were many boys who liked her and who proposed love to her, but she was sure that she was not in love with any of them. She had rejected and discouraged many suitors, all the while being secretly afraid that for all the hearts she had broken, life would take revenge on her.
-
-He was very different from all the boys she had met. He neither seemed interested in love nor had any notion of settling down anytime soon. He had a career to build, he wanted to be the next Bill Gates and she was fascinated by his drive and zest for life. She could be herself with him, and quickly he became her friend, mentor, guide and confidante. Meanwhile she also saw many of her friends falling in and out of love, getting married to men they didn't love. The fear that life might actually be just a set of compromises till death, started looming over her head.
-
-He seemed to have dismissed life already. His inherent cynicism extended to marriage too and he made the profound declaration that all marriages were anyway lose-lose relationships. She wanted to dismiss it as the stupidity of a 21 year old, but she was unable to find proof of starkling contrast around her. He was Tamil and his current fascination was Vairamuthu songs in Tamil movies. He would painstakingly translate the songs he was listening to, for her.. and she would be fascinated by the idealism, especially related to love, in those poems. She wished with all her heart that such love existed in the world (even if she was not lucky enough to experience it). 
-
-They would also talk about the friendships and crushes they had in college, about what true love is, and how they would recognize it if they experienced love. Then one day, he suddenly shifted gears. He told her that he suspected that he was in love. He was talking about "his love" as if looking at it from outside, so she didn't have any reason to think that it was her. They were talking about one of his friends in college and somehow she didn't feel curious about who he was in love with. She was more curious about his feelings and his expressions and whether it could really be the love that Shakespeare or Jayadeva was talking about. 
-
-Like everything else, once he set forth, he seemed sure, sincere and fully dedicated in his pursuit of love. She started feeling very happy, his experience transferred to her and she started feeling hope in life again. The kind of love he was experiencing seemed genuine and it was the first time that she was seeing something like that. Many of her friends had talked to her about their experiences related to love , but nothing had this purity or lack of calculation or the complete submission that she saw in him. He was blissful all the time and seemed to radiate with happiness. He also switched from glasses to contact lens and altogether transformed into a well-groomed good looking boy from a person who didn't care about anything in the world.. He told her that he was quitting smoking since he wanted to be 'worthy' of 'her' and started hitting the gym and taking new hobbies like swimming and rowing. She relished the change in her friend and felt a renewed positive energy every time she was with him.
-
-She had a bracelet made of rolled gold. It had beautiful musical notes in it. One day they were standing in their favorite sunset corner and they were so engaged in conversation that they didn't notice that it had turned dark. She was flashing her hands and the bracelet caught his eye. "This is so beautiful", he said, "can you give this to me for a day". He had an enchanted look on his face, and she had a flashing thought that maybe he was thinking about his girl. She said "Of course" and tried to take it off, but the clasp was tight. He was insistent and helped her get it off. He was looking so happy, almost like a kid who had been given his favorite toy. She had a rule against going on his bike, so he got an auto and dropped her back home since it was late.
-
-He used to stay with his friends, one of them his childhood friend. He told her the next day over morning coffee that his friend thought he was mad, when he showed him the bracelet. That should have given her the warning, but somehow she was determined to not break the trance of his happiness. She was enchanted by it to such an extent that she was unwilling to touch it. She did not say anything.
-
-But over the days, he would talk to her as if she was in on his secret - He would tell her how, growing up, he had laughed at all the Bollywood heroes, but how now he was behaving like one. She asked him if he did not mind looking like a fool. He said he's past that stage - that he had resigned to looking like a fool, but he could not hide his feelings and that it was her problem if she was uncomfortable.
-
-She slowly started doubting the implication of the whole thing. He - a Tamil Iyer boy from a conservative family was contemplating getting into a relationship with her - a Kerala Muslim 5 months older than him. The year was 2002, the stuff was something that could create a communal riot , at least in her community. Or maybe she was imagining the whole thing.  He was very intelligent, ambitious and practical. She tried to pretend that this was not going to happen. That he was still a friend who was in love with some girl she didn't know, and that she was happy for him. 
-
-She was brought down to hard reality when the marriage was fixed for one of her roommates, her friend. The attitude of her friend woke her out of her reverie. Her friend seemed to approach marriage like an exam - stressful and unpleasant, yet inevitable. It bothered her a lot. During their morning coffee, she was discussing this with him, and his question was - if the girl is not excited about the marriage, isn't it unfair on the guy? She wondered, what if it is the same for the guy? If we invest in marriage like how we invest in shares, with all kinds of calculations, there is only anticipation - whether it would go up or down. As they were approaching their cubicles, she said "Sometimes I wonder if I would end up exactly like that.". He stopped short - his face dark like a cloud. "What do you mean?" She repeated - "I don't want to feel sorry for myself, but my options seem to be running out". He left her and seemed aloof for the rest of the day.
-
-Later she pinged him to remind him of their team meeting and he responded over IM that he was not in the mood for all that now. She asked if he was angry with her. 
-He: Sometimes I feel that we understand each other perfectly. But sometimes we seem totally out of sync. You seem surprised at most things I thought you knew.
-She panicked. "I think I understand what you are trying to say, but maybe you don't understand me. Maybe you have misunderstood me."
-He: "Doesn't matter. In any case, I cannot have any ill feeling towards you. I also want you to understand one thing. The first thing I liked about you was that you are a very open person. Please never lose that quality."
-She - "Whatever you want to ask, you can ask. I promise I'll be open. But your questions should be clear." 
-He - "Maybe I don't want to ask. I am afraid, frankly.".. 
-She: "Then how can I be open?". 
-He : "That is true. Remember our deal a while back? I answer your questions and you answer mine! :-) Long before.."
-She: Yes, You can proceed
-He: I don't know. I am still scared. Should I ask?
-She: No. Maybe not. But I will tell you something. I am not in love with anyone in this world. It does not mean I don't like anyone or love anyone. But I am not "in love".
-He: Good then, forget it. No questions, no answers.
-
-He went back to his old self with a vengeance. She noticed that he again started sneaking out of the office to smoke. She was afraid to ask or reprimand. He lost interest in his work and started looking like a mess. She was angry, and frustrated. But she could not let someone bully her or blackmail her into falling in love. She missed her friend miserably. She desperately wanted things to be back to where it was and tried convincing him that they should be just friends. He was adamant that she is not a friend.  He said he was not one of those kinds who pretended to be friends with the girl he was in love with. He gave her the bracelet back and said that for his self-preservation it was better that they did not interact with each other.
-
-  ~ Her
+### The Proposal
 
 
+27 March 2002. 
+She got up with all the excitement of a child on her birthday. She was going to be 22! The house in Bangalore that she shared with her seniors from college, was busily engaged in the morning rituals to leave for office. Today she wanted to get up early,  go to the office early, so that she could savor more of the day. To add to her excitement, she was going home to Kochi in the evening for an extended weekend. 
+
+The telephone kept ringing with birthday wishes from her family and her friends who were no longer in Bangalore. She had a letter from her father and her sister. When she got a gap, she quickly took a shower and had to rush out in house clothes to attend to the telephone that was ringing again. Her housemates were almost ready, walking in and out of rooms in the last minute rush. Two of them had already left for the office, keeping the front door open.
+
+She was settling down on the mattress sprawled on the floor to attend to the telephone. She does not remember who it was on the phone, but her eyes were in the direction of the open front door, and she froze. He was standing there, outside her house, looking embarrassed and totally out of place. 
+Her first thought was, what would the girls in the house think? Did they see him? 
+
+She said something into the phone and  quickly came out and tried to pull him out of the gate. He whispered "Happy Birthday, I wanted to give this to you". Then she saw it - A huge box which could easily fit a person inside. She was in shock as she asked "How did you bring this here". He sheepishly answered "I walked with it".  Her eyes became wider and wider - "All this way? On the roads? Didn't people see you?". He laughed nervously -  "It didn't seem so stupid before, but now I am not sure". 
+
+She didn't have time to stand there and argue, she didn't want to think too much about it. She shooed him away saying she'd meet him in the office, and laboriously took the box in. Only two of her roommates were still in the house. Seeing their questioning glances, she replied. "It is a gift from my team in Cisco, he was asked to deliver it since he stays close by." They were blown away. "Wow! what a company, we should be working for such companies. Come, let's open it." Seeing their exclamations of friendly envy about the personal care of her company, she felt guilty and embarrassed about her lie. 
+
+She was just not ready to talk about him to anyone, let alone her roommates who were not even friends. What was he to her anyway? He was a friend, she had many friends. Right, a friend who stupidly walked through the busy morning Indiranagar streets looking like a fool to personally deliver the huge gift wrapped birthday gift and wish her. Wait, but that was not her problem, just his foolishness. Then why was she embarrassed about telling the truth? She was afraid that nobody would be as foolish as her to believe that he was just a friend.
+
+Frankly she was afraid to open it with them. What if the contents revealed nothing that would look like a team gift, what if they were more personal? She was not sure if she was feeling angry with him then, or sorry for him, or feeling overwhelmed altogether. Her quota of lies were over for a lifetime, and she decided to brave it and open it. What was inside made her grin from ear to ear. A big black gorilla - the only one she had ever seen in her life in an Archies showroom in Bangalore. There was no card, no personal note, no explanation! (It was very clear that he hasn't done much 'gifting' in his life)
+
+The girls didn't seem to think anything odd - Girls having stuffed toys from teddy bear to tweety birds were common in those days (maybe they were too immature to have real pets then) - and going by the 'status' of Cisco, they just assumed that they'd send her the biggest stuffed toy available in the market. Both the girls walked around, touched and examined the gorilla, seemed satisfied , said "we'll name it in the evening", and left for the office. 
+
+If they were not in a hurry, and if they were puzzled by why a gorilla and not a regular teddy bear, she had a story, which was not a lie. Flashback two months back to when he called her to go shopping with him to select a gift for his sister's wedding anniversary. He said he was clueless since he never had any money to gift her anything from Archies or such expensive places. They entered the colourful huge Archies store in Brigade road and the first thing that caught her eye, the showstopper for her, was this huge gorilla sitting royally on a shelf. He seemed to dwarf every stuffed animal around it. She was not able to look at anything else, nothing else caught her eye while it was there. It was far too prominent to ignore. She said "wow, gift her this." They were aghast when they saw the price, and he was very skeptical since it was not anything like what you'd conventionally call cute. It might even look big and scary to some. He was skeptical -  "Would she like it?" She replied, laughing "I would be very glad if someone got me this. Also, it might remind her of you, look, the eyes are the same!".  It was not a very serious conversation, something that probably lasted hardly 2 minutes before they moved onto more practical, affordable and sensible options for gifting a sister who was married.
+
+On March 27 2002,  she didn't know that this was going to change things for both of them. She was far too absorbed in her own special day, she was expecting the world to shower her with their wishes and blessings. Till then she was playing hide and seek with him, she would not let him say the dreaded "I love you", she didn't want to lose him as long as she could. If he had taken out the ring then, she could have easily said "No', but he was smart. He just gave her a birthday gift, but went through the same hoops any guy would happily go through, for the person he wants to spend the rest of his life with... publicly, unabashedly. He knew she'd say No if asked the question, and he was just not ready to take No for an answer. Without asking, he was telling her "I would do anything for you, I would move mountains for you, will you be mine?" 
+
+She carefully dressed up, packed her bags for the evening trip home, and left for office cheerful and with a singing heart. She was very happy that day and she believed that it was because it was her birthday. She had many friends and admirers in the office and she had many gifts - flowers and cards - waiting at her desk . He was waiting with a smile for their daily coffee, had a "You look so beautiful" look on his face which she promptly ignored, and he was mocking her about the red cards and flowers from other boys at her desk. 
+
+"Scarlett O Hara", he would tease. That was whom she reminded him of , he had said, the very first week after they met. She didn't know who she was - the heroine of "Gone with the wind", she hadn't read the book or seen the movie. She asked Surabhi and she seemed to think that it was an insult because Scarlett O Hara was not an ideal woman according to her. She ignored that too, until she came across Linda Goodman's description of Aries women. 
+
+_"Scariett O’Hara is the very epitome of the Mars-ruled
+Aries female. Like Scariett, the Aries girl will gather every available male for a hundred miles around to her feet, while her willful heart yearns for the one man she can’t have for one reason or another."_
+
+She was impressed then - for he had absolutely no clue about sun signs or Linda Goodman .. and she was Aries! But right now, he was clearly mocking at the huge red cards on her desk.
 
 
+During coffee, they discussed the aftermath of his visit and she said that the girls were already emailing her names for the gorilla. He asked "so what have you decided to name it?'' The Scarlett O Hara remark was still in her mind so she said  "I am going to name him "Rhett", and I am going to ignore all other boys and love ONLY him for the rest of my life." He seemed amused. 
+
+He asked her if he could come with her in the auto to the bus stop, and she happily agreed. Her day had started with her thinking only about herself and her birthday, but by the time it ended she could think only about him. When she went home she talked to her parents about him, that she's afraid that she liked him.. If it was ever possible to think of marrying him. 
+(To the modern and unaware generation : The possibiltiy factor of a Kerala Muslim girl marrying a vegetarian Tamil Iyer/Brahmin)
+
+Her mother was very sad when she replied to her - "We have tried our best to fulfil every wish of yours. But you cannot ask us for the moon, it just isn't fair"
+In her own heart she was afraid that was true, it was unfair on her parents. She thought about Rhett in the Archies showroom, totally out of place there, waiting to be in a better home and heart. He deserved the answer as soon as possible. 
+
+From home, over the chat she conveyed to him that they were just dreaming impossible dreams. It was time to wake up, stop all this nonsense, and come back to senses. He asked her if she would be happy. She said yes, anyway how do we know .. Happiness is something you experience, not something you can anticipate. He told her not to worry about anything and just go with whatever makes her happy.
+She resolved that she was never going to tell him about the conversation she had with her parents, that she actually told them that she liked him, because she knew that at the slightest sign of encouragement he would pull her to the other side.
+
+She thought that she'd forget about all this, and take life one day at a time. But ever since Rhett came into her life, she was finding it difficult to ignore him. He was standing out there, like Rhett in the Archies shop, bigger than the place that would contain him.  If someone asked her if she found him cute, she was not even sure. But she was sure of one thing - it was impossible to see anyone or anything else as long as he was there! 
+
+_~Her_

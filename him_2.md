@@ -2,10 +2,10 @@
 [<<  Back to Index](index.md)
 
 
-#### [Episode 4 - Her](her_4.md)
+#### [Episode 2 - Her](her_2.md)
 
 
-### Episode 4 - Him
+### Episode 2 - Him
 
 When he woke up, he thought the day was special. That was not new. Every day seemed special to him after he realized that she was special. He had started shaving more frequently and paying more attention to his hair lately. He arrived on time and waited patiently for her to come. This was a moment of highlight in his every day -  the first glimpse of expression on her face when she turned around the corner to enter their aisle of cubicles. She would be excited about something trivial that they would then discuss in detail, or amused at an incident that happened in the fourteen hours they were apart. It was his way of drawing inspiration from life - like a child turning to her bedroom plant every morning to see what new bud or flower it has brought forth.
 
