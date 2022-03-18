@@ -35,16 +35,16 @@ She was brought down to hard reality when the marriage was fixed for one of her 
 
 Later she pinged him to remind him of their team meeting and he responded over IM that he was not in the mood for all that now. She asked if he was angry with her. 
 He: Sometimes I feel that we understand each other perfectly. But sometimes we seem totally out of sync. You seem surprised at most things I thought you knew.  
-She panicked. "I think I understand what you are trying to say, but maybe you don't understand me. Maybe you have misunderstood me."  
-He: "Doesn't matter. In any case, I cannot have any ill feeling towards you. I also want you to understand one thing. The first thing I liked about you was that you are a very open person. Please never lose that quality."  
-She - "Whatever you want to ask, you can ask. I promise I'll be open. But your questions should be clear."  
-He - "Maybe I don't want to ask. I am afraid, frankly."..  
-She: "Then how can I be open?".  
-He : "That is true. Remember our deal a while back? I answer your questions and you answer mine! :-) Long before.."  
-She: Yes, You can proceed  
-He: I don't know. I am still scared. Should I ask?  
-She: No. Maybe not. But I will tell you something. I am not in love with anyone in this world. It does not mean I don't like anyone or love anyone. But I am not "in love".  
-He: Good then, forget it. No questions, no answers.  
+She panicked. "I think I understand what you are trying to say, but maybe you don't understand me. Maybe you have misunderstood me."  <br />
+He: "Doesn't matter. In any case, I cannot have any ill feeling towards you. I also want you to understand one thing. The first thing I liked about you was that you are a very open person. Please never lose that quality." <br />  
+She - "Whatever you want to ask, you can ask. I promise I'll be open. But your questions should be clear."  <br />
+He - "Maybe I don't want to ask. I am afraid, frankly."..  <br />
+She: "Then how can I be open?".  <br />
+He : "That is true. Remember our deal a while back? I answer your questions and you answer mine! :-) Long before.."  <br />
+She: Yes, You can proceed  <br />
+He: I don't know. I am still scared. Should I ask?  <br />
+She: No. Maybe not. But I will tell you something. I am not in love with anyone in this world. It does not mean I don't like anyone or love anyone. But I am not "in love".  <br />
+He: Good then, forget it. No questions, no answers.  <br />
 
 He went back to his old self with a vengeance. She noticed that he again started sneaking out of the office to smoke. She was afraid to ask or reprimand. He lost interest in his work and started looking like a mess. She was angry, and frustrated. But she could not let someone bully her or blackmail her into falling in love. She missed her friend miserably. She desperately wanted things to be back to where it was and tried convincing him that they should be just friends. He was adamant that she is not a friend.  He said he was not one of those kinds who pretended to be friends with the girl he was in love with. He gave her the bracelet back and said that for his self-preservation it was better that they did not interact with each other.
 
