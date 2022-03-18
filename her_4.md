@@ -33,7 +33,8 @@ She slowly started doubting the implication of the whole thing. He - a Tamil Iye
 
 She was brought down to hard reality when the marriage was fixed for one of her roommates, her friend. The attitude of her friend woke her out of her reverie. Her friend seemed to approach marriage like an exam - stressful and unpleasant, yet inevitable. It bothered her a lot. During their morning coffee, she was discussing this with him, and his question was - if the girl is not excited about the marriage, isn't it unfair on the guy? She wondered, what if it is the same for the guy? If we invest in marriage like how we invest in shares, with all kinds of calculations, there is only anticipation - whether it would go up or down. As they were approaching their cubicles, she said "Sometimes I wonder if I would end up exactly like that.". He stopped short - his face dark like a cloud. "What do you mean?" She repeated - "I don't want to feel sorry for myself, but my options seem to be running out". He left her and seemed aloof for the rest of the day.
 
-Later she pinged him to remind him of their team meeting and he responded over IM that he was not in the mood for all that now. She asked if he was angry with her. 
+Later she pinged him to remind him of their team meeting and he responded over IM that he was not in the mood for all that now. She asked if he was angry with her. <br />
+
 He: Sometimes I feel that we understand each other perfectly. But sometimes we seem totally out of sync. You seem surprised at most things I thought you knew.  
 She panicked. "I think I understand what you are trying to say, but maybe you don't understand me. Maybe you have misunderstood me."  <br />
 He: "Doesn't matter. In any case, I cannot have any ill feeling towards you. I also want you to understand one thing. The first thing I liked about you was that you are a very open person. Please never lose that quality." <br />  
