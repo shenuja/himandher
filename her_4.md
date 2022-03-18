@@ -34,17 +34,17 @@ She slowly started doubting the implication of the whole thing. He - a Tamil Iye
 She was brought down to hard reality when the marriage was fixed for one of her roommates, her friend. The attitude of her friend woke her out of her reverie. Her friend seemed to approach marriage like an exam - stressful and unpleasant, yet inevitable. It bothered her a lot. During their morning coffee, she was discussing this with him, and his question was - if the girl is not excited about the marriage, isn't it unfair on the guy? She wondered, what if it is the same for the guy? If we invest in marriage like how we invest in shares, with all kinds of calculations, there is only anticipation - whether it would go up or down. As they were approaching their cubicles, she said "Sometimes I wonder if I would end up exactly like that.". He stopped short - his face dark like a cloud. "What do you mean?" She repeated - "I don't want to feel sorry for myself, but my options seem to be running out". He left her and seemed aloof for the rest of the day.
 
 Later she pinged him to remind him of their team meeting and he responded over IM that he was not in the mood for all that now. She asked if he was angry with her. 
-He: Sometimes I feel that we understand each other perfectly. But sometimes we seem totally out of sync. You seem surprised at most things I thought you knew.
-She panicked. "I think I understand what you are trying to say, but maybe you don't understand me. Maybe you have misunderstood me."
-He: "Doesn't matter. In any case, I cannot have any ill feeling towards you. I also want you to understand one thing. The first thing I liked about you was that you are a very open person. Please never lose that quality."
-She - "Whatever you want to ask, you can ask. I promise I'll be open. But your questions should be clear." 
-He - "Maybe I don't want to ask. I am afraid, frankly.".. 
-She: "Then how can I be open?". 
-He : "That is true. Remember our deal a while back? I answer your questions and you answer mine! :-) Long before.."
-She: Yes, You can proceed
-He: I don't know. I am still scared. Should I ask?
-She: No. Maybe not. But I will tell you something. I am not in love with anyone in this world. It does not mean I don't like anyone or love anyone. But I am not "in love".
-He: Good then, forget it. No questions, no answers.
+He: Sometimes I feel that we understand each other perfectly. But sometimes we seem totally out of sync. You seem surprised at most things I thought you knew.  
+She panicked. "I think I understand what you are trying to say, but maybe you don't understand me. Maybe you have misunderstood me."  
+He: "Doesn't matter. In any case, I cannot have any ill feeling towards you. I also want you to understand one thing. The first thing I liked about you was that you are a very open person. Please never lose that quality."  
+She - "Whatever you want to ask, you can ask. I promise I'll be open. But your questions should be clear."  
+He - "Maybe I don't want to ask. I am afraid, frankly."..  
+She: "Then how can I be open?".  
+He : "That is true. Remember our deal a while back? I answer your questions and you answer mine! :-) Long before.."  
+She: Yes, You can proceed  
+He: I don't know. I am still scared. Should I ask?  
+She: No. Maybe not. But I will tell you something. I am not in love with anyone in this world. It does not mean I don't like anyone or love anyone. But I am not "in love".  
+He: Good then, forget it. No questions, no answers.  
 
 He went back to his old self with a vengeance. She noticed that he again started sneaking out of the office to smoke. She was afraid to ask or reprimand. He lost interest in his work and started looking like a mess. She was angry, and frustrated. But she could not let someone bully her or blackmail her into falling in love. She missed her friend miserably. She desperately wanted things to be back to where it was and tried convincing him that they should be just friends. He was adamant that she is not a friend.  He said he was not one of those kinds who pretended to be friends with the girl he was in love with. He gave her the bracelet back and said that for his self-preservation it was better that they did not interact with each other.
 
