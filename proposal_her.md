@@ -56,4 +56,6 @@ _~Her_
 #### [The Proposal - 2](proposal2_her.md)
 
 
+![Image of Rhett](rhett.jpeg)
+
 _© 2019 Shenuja Subhash_
