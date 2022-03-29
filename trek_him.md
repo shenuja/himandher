@@ -19,6 +19,6 @@ _~Him_
 
 ### Episode 6 [By her](trek_her.md)
 
-
+[<< Previous](her_5.md)                 [>>Next](trek_her.md)
 
 _© 2019 Subhash G_

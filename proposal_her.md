@@ -55,6 +55,7 @@ _~Her_
 
 #### [The Proposal - 2](proposal2_her.md)
 
+[<< Previous](her_4.md)                 [>>Next](side_story_her.md)
 
 ![Image of Rhett](rhett.jpeg)
 

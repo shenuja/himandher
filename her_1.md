@@ -21,7 +21,7 @@ After that day she tried to look at him more closely. That is when she slowly st
 
 ~ Her
 
-
+[>>Next](her_2.md)
 
 
 _© 2019 Shenuja Subhash_

@@ -28,6 +28,8 @@ The leggy doll lives with them to this day, watching over them like a guardian a
 
 ~Her
 
+[<< Previous](doll_him.md)                 [>>Next](her_4.md)
+
 ![Image of Chimbi paava](chimbi2.jpeg)
 
 

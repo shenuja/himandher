@@ -45,7 +45,7 @@ She hoped that their sons had the same answer - "Oh, you haven't loved at all! I
 
 _~Her_
 
-
+[<< Previous](proposal_her.md)                 [>>Next](proposal2_her.md)
 
 
 

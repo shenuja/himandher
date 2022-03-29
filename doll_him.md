@@ -23,6 +23,6 @@ _~Him_
 
 
 
-
+[<< Previous](him_2.md)                 [>>Next](doll_her.md)
 
 _© 2019 Subhash G_

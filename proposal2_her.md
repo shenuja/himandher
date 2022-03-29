@@ -23,6 +23,6 @@ The man who could move mountains for her eventually did, and after 20 years her 
 
 _~ Her_
 
-
+[<< Previous](side_story_her.md)                 [>>Next](her_5.md)
 
 _© 2019 Shenuja Subhash_

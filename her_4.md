@@ -50,7 +50,7 @@ He went back to his old self with a vengeance. She noticed that he again started
 
 _~ Her_
 
-
+[<< Previous](doll_her.md)                 [>>Next](proposal_her.md)
 
 
 _© 2019 Shenuja Subhash_

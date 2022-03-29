@@ -26,3 +26,5 @@ The movie was "Kannathil Muthamittal" by Mani Ratnam. When she was watching the 
 _~Her_
 
 ### [Episode 2 - Him](him_2.md)
+
+[<< Previous](her_1.md)                 [>>Next](him_2.md)
