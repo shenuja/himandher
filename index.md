@@ -1,6 +1,6 @@
 
 
-1. ### [Him & Her Episode 1](her_1.md)
+1. ### [Him & Her Episode 1](/her_1.md)
 2. ### [Him & Her Episode 2 - Her](her_2.md)
 3. ### [Episode 2 by Him](him_2.md)
 
