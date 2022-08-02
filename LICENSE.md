@@ -7,6 +7,6 @@
 ✖️ Patent use<br>
 ✖️ Private use<br>
 
-***Any use is unauthorized - Please contact (create issue) for special permission***
+**Any use is unauthorized - Please contact (create issue) for special permission**
 
 *[See more](https://choosealicense.com/no-permission/)*
