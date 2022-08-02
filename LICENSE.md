@@ -9,4 +9,4 @@
 
 ***Any use is unauthorized - Please contact (create issue) for special permission***
 
-See [here](https://choosealicense.com/no-permission/)
+[See more](https://choosealicense.com/no-permission/)
